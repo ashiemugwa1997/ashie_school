@@ -1,0 +1,1 @@
+# ashie_school
